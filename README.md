@@ -1,3 +1,5 @@
 hi! i'm [sarah](https://urlsarahz.github.io) and i'm  
-⭒  noting down my days at [recordsof.love](https://recordsof.love)  
+⭒  a girl with a blog(https:urlsarahz.wordpress.com)
+⭒  dreaming of a safer, kinder, more whimsical internet
+⭒  most likely biology-ing or 
 ⭒  playing the piano / reading a novel / struggling with gouache
