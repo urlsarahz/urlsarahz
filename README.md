@@ -1,5 +1,5 @@
-hi! i'm [sarah](https://urlsarahz.github.io) and i'm  
+hi! i'm [sarah](https://recordsof.love) and i'm  
 ⭒  a girl with a [blog](https://urlsarahz.wordpress.com)  
 ⭒  dreaming of a safer, kinder, more whimsical internet  
-⭒  most likely biology-ing or  
-⭒  playing the piano / reading a novel / struggling with gouache
+⭒  your future [email penpal] (https://recordsof.love/mail)
+⭒  studying ^-^ / playing the piano / reading a novel / gouache or oil painting
